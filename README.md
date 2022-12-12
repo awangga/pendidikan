@@ -2,13 +2,13 @@
 Kriteria 6 : Pendidikan
 
 ## Penetapan
-[Dokumen Penetapan](/penetapan)
+[Dokumen Penetapan](/pendidikan/penetapan)
 
 ## Pelaksanaan
-[Dokumen Pelaksanaan](/pelaksanaan)
+[Dokumen Pelaksanaan](/pendidikan/pelaksanaan)
 
 ## Evaluasi
-[Dokumen Evaluasi](/evaluasi)
+[Dokumen Evaluasi](/pendidikan/evaluasi)
 
 ## Pengendalian dan Peningkatan
-[Dokumen Pengendalian dan Peningkatan](/pengendalianpeningkatan)
+[Dokumen Pengendalian dan Peningkatan](/pendidikan/pengendalianpeningkatan)
