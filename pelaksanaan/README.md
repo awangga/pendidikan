@@ -44,12 +44,12 @@ Kriteria 6 : Pendidikan sub Pelaksanaan
 [link](http://fe.unj.ac.id/?page_id=1123)
 [link](https://unjac-my.sharepoint.com/:f:/g/personal/gpjmfe_unj_ac_id/Et1xNYDYY4xJrriL_Dbl84cBCm2kkXciqdGhaSdOIsbd4Q?e=80T2xg)
 
-# Dokumen Borang Kompetensi Lulusan Program Studi
+## Dokumen Borang Kompetensi Lulusan Program Studi
 
 [link](http://fe.unj.ac.id/?paged=8)
 [link](https://unjac-my.sharepoint.com/:f:/g/personal/gpjmfe_unj_ac_id/EpTRAjJnuDRIq6B_su5lRhsBBx1zJeANNtus-EheH0dI6Q?e=QfTp6g)
 
-# Dokumen kompetensi lulusan program studi yang mencakup sikap, pengetahuan, dan ketrampilan, sekali dinyatakan dalam rumusan CPL
+## Dokumen kompetensi lulusan program studi yang mencakup sikap, pengetahuan, dan ketrampilan, sekali dinyatakan dalam rumusan CPL
 
 [link](https://unjac-my.sharepoint.com/:f:/g/personal/gpjmfe_unj_ac_id/ErcEbGKC1d1FoBRvAHH4R2EBfNK3jnmPKoVF8yNi-z_spw?e=5xKInq)
 [link](https://unjac-my.sharepoint.com/:f:/g/personal/gpjm-fe_unj_ac_id/EnBoultrW1OoRCGzw0Yw5sBqp1tRNXuZ6r5IBH2bn2HoQ?e=eyUEx3)
