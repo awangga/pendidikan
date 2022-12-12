@@ -1,6 +1,5 @@
 # PELAKSANAAN
 Kriteria 6 : Pendidikan sub Pelaksanaan
-
 ## Dokumen pernyataan Kompetensi Lulusan program studi dicantumkan dalam BPA
 [link](https://unjac-my.sharepoint.com/:f:/g/personal/gpjm-fe_unj_ac_id/EnqrN3qsl9FtHBZvtHSfw4BBZn4tlh0cROLb8sgZkxu2Q?e=qc0o1D)
 ## Dokumen pernyataan Kompetensi lulusan program studi dijabarkan menjadi rumusan capaian pembelajaran lulusan (PLO=Programme Learning Outcome)
