@@ -2,13 +2,13 @@
 Kriteria 6 : Pendidikan
 
 ## Penetapan
-https://github.com/d4if/pendidikan/tree/main/penetapan
+[Dokumen Penetapan](/penetapan)
 
 ## Pelaksanaan
-https://github.com/d4if/pendidikan/tree/main/pelaksanaan
+[Dokumen Pelaksanaan](/pelaksanaan)
 
 ## Evaluasi
-https://github.com/d4if/pendidikan/tree/main/evaluasi
+[Dokumen Evaluasi](/evaluasi)
 
 ## Pengendalian dan Peningkatan
-https://github.com/d4if/pendidikan/tree/main/pengendalianpeningkatan
+[Dokumen Pengendalian dan Peningkatan](/pengendalianpeningkatan)
