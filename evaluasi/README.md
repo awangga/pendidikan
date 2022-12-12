@@ -80,5 +80,55 @@ https://drive.google.com/file/d/1RdT752zKhtJLPJD5XC8GoPjD09Ur5ZXz/view
 https://drive.google.com/file/d/1DxShgXGLl3oCjxn9UN_nBkGaqsfpi9d_/view
 
 
+## Monev pembelajaran dan monitoring evaluasi pembelajaran
+
+https://unjac-my.sharepoint.com/:f:/g/personal/gpjmfe_unj_ac_id/EuK4OLYLJxRJmww1H21pYTsBNcVMEGgooX5_OMseHzhM9Q?e=K39qsk
+
+
+## Data KHS untuk mahasiswa Fakultas Ekonomi
+
+https://unjac-my.sharepoint.com/:f:/g/personal/gpjmfe_unj_ac_id/EoKKAGyZfcNNjFKynmuG3NYBm2Ck9tpcxmruPyRxfZM55g?e=QAw0NT
+
+## Bukti nilai di setiap program studi yang menggambarkan kompetensi setiap mahasiswa di setiap matakuliah
+
+https://cutt.ly/fmzaBdI
+https://unjac-my.sharepoint.com/:f:/g/personal/gpjmfe_unj_ac_id/Epun36OcH0ZCuP8mJlhry90B6Kc-0TYPeTqiIzwoAjMXCQ?e=bZOfRK
+https://unjac-my.sharepoint.com/:f:/g/personal/gpjmfe_unj_ac_id/EiIpm2LuonlEtTlmKr40oYoB5q19o2-_PzxE85YlvzOjdg?e=EEwLZ6
+
+## Dokumen Penilaian Kompetensi Lulusan
+
+https://unjac-my.sharepoint.com/:b:/g/personal/gpjmfe_unj_ac_id/EeL3HdsnmKROi0LB260yoYIBW8duspaYhnzGXk8E3GE8QQ?e=VTRFCB
+https://unjac-my.sharepoint.com/:b:/g/personal/gpjm-fe_unj_ac_id/EWVZzexu1bREn9tKhtQhMMBQ7rG7pK02XxJQGL5BPvG5g?e=IPDJkx
+https://unjac-my.sharepoint.com/:b:/g/personal/gpjmfe_unj_ac_id/EfGTJ2DGQjhJiG_7ruuAldMBte3vMlX_9coC_QJb61gguw?e=CE5e4j
+
+## Formulir monitoring proses pembimbingan tugas akhir untuk setiap jenjang program studi yang ada di UNJ
+
+https://unjac-my.sharepoint.com/:f:/g/personal/gpjmfe_unj_ac_id/Ev_3pBhOk7VGgCXz_zWdregBY3L6NVBFQI7uJNBJhm4PAA?e=AVtqkv
+
+## Formulir evaluasi dosen dalam proses bimbingan tugas akhir
+
+https://unjac-my.sharepoint.com/:f:/g/personal/gpjmfe_unj_ac_id/Ev_3pBhOk7VGgCXz_zWdregBY3L6NVBFQI7uJNBJhm4PAA?e=TvlIF5
+
+## Monev bimbingan tugas akhir oleh dosen
+
+https://unjac-my.sharepoint.com/:x:/g/personal/gpjmfe_unj_ac_id/EZi23UxTwbVPumSdZcVrtFgBXkE9anKAxuWpfznNr3VnHw?e=pcd4Np
+
+## Monev bimbingan tugas akhir oleh mahasiswa
+
+https://unjac-my.sharepoint.com/:x:/g/personal/gpjmfe_unj_ac_id/ETiSPEAeWGlAtY3FgAMhkjIBZJAUHIIY0sF1BxGMdjzY-Q?e=zQQGkB
+
+## Monitoring proses pembimbingan tugas akhir
+
+https://unjac-my.sharepoint.com/:b:/g/personal/gpjm-fe_unj_ac_id/EXrGxBrYRFNqLPxnYBs8WIBqyWgUPBreY842C11yu9Rjw?e=EUKudf
+
+## Monitoring tugas akhir
+
+https://unjac-my.sharepoint.com/:f:/g/personal/gpjmfe_unj_ac_id/EtZW8JM_xddHvs4rVhN3RtkBVuQrjZj73lHAlvi4jw8vZQ?e=VTr8HX
+
+## Monitoring proses pembimbingan tugas akhir
+
+https://unjac-my.sharepoint.com/:b:/g/personal/gpjm-fe_unj_ac_id/EXrGxBrYRFNqLPxnYBs8WIBqyWgUPBreY842C11yu9Rjw?e=XxOvoQ
+
+
 
 
